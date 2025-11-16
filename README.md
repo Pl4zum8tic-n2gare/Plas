@@ -13,6 +13,8 @@
 - chi](https://rentry.co/chisresources)
 - **pixels mostly**
 - hetalia (https://hanatamagotchi.tumblr.com/hetalia-pixels)
+- letters (https://pixel-dreams.tumblr.com/tagged/letters)
 - **stamp mains!!**
 - sage](https://toyhou.se/33783846.stamp-collection)
 - foresaken](https://toyhou.se/33472298.forsaken-stamps-f2u/33472312.f2u-forsaken-stamps/gallery)
+  
